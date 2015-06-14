@@ -1,2 +1,1 @@
-Hi there my name
-is Tung
+Hi there my nama are Long
